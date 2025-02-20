@@ -1,3 +1,1 @@
-Isaac est nul en Oz 
-Mais il est bon en C
-Il est aussi tres nul en Java 
+Tout le monde est aussi perdu que moi dans ce monde infame, cruelle et sans pitier 
